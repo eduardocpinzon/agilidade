@@ -1,0 +1,1 @@
+[https://medium.com/@edcpinzon/o-canvas-da-reviravolta-aplique-o-modelo-de-jared-diamond-na-gest%C3%A3o-de-crises-an%C3%A1lise-sobre-3599c99be583](https://medium.com/@edcpinzon/o-canvas-da-reviravolta-aplique-o-modelo-de-jared-diamond-na-gestão-de-crises-análise-sobre-3599c99be583)
